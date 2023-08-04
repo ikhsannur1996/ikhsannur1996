@@ -6,4 +6,4 @@ Certifications: Microsoft Certified: Azure Fundamentals, Associate Cloud Enginee
 
 Let's connect on [LinkedIn](https://www.linkedin.com/in/mohamad-ikhsan-nurulloh/) to stay updated and collaborate on exciting projects in Cloud, Data, and Business Intelligence!
 
-Happy coding! 🚀🔥
+Happy learning! 🚀🔥
