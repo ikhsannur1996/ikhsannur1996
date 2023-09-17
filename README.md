@@ -8,6 +8,7 @@ Let's connect on [LinkedIn](https://www.linkedin.com/in/mohamad-ikhsan-nurulloh/
 
 Portfolio: 
 [https://github.com/ikhsannur1996](https://github.com/ikhsannur1996)
+
 [https://linktr.ee/ikhsannur1996](https://linktr.ee/ikhsannur1996)
 
 Happy learning! 🚀🔥
